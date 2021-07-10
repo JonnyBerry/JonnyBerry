@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JonnyBerry
+- 👋 Hi, I’m Jonathan Berry
 - 👀 I’m interested in travelling building new skills and playing the guitar 
 - 🌱 I’m currently learning coding 
 - 💞️ I’m looking to collaborate on 
